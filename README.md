@@ -1,2 +1,3 @@
 # Pieter-Brueghel-era-innovador-en-su-tiempo
 Pieter Brueghel el Viejo, nacido alrededor de 1526 en Bruselas, fue un pintor y grabador que desafió las convenciones artísticas de su época. Se enfocó en retratar la vida de los campesinos, paisajes detallados y temas apocalípticos, alejándose de los temas tradicionales de la realeza y escenas bíblicas convencionales. Sus obras como "La boda campesina" capturan la esencia de la vida cotidiana con autenticidad y profundidad. Brueghel aportó una nueva perspectiva al arte, otorgando protagonismo a lo que antes se consideraba secundario.
+https://historiasconarte.com/2024/10/02/el-viejo-brueghel/
